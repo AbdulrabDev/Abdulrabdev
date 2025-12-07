@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student. I love having fun. I love chess.
+I am a third-year student majoring in Information Systems Engineering - Sakarya annnd I love chess.
 
 
 ## 🌐 Socials:
